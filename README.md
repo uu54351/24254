@@ -21,4 +21,4 @@
 无论你是忠实的JAV影迷，还是初次探索的用户，这里都将是你观看日本AV免费资源的首选平台。立即开始你的探索之旅吧！
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/uu54351/24254 ）</span>
